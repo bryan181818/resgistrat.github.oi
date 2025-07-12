@@ -1,0 +1,1 @@
+# resgistrat.github.oi
